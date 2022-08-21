@@ -1,0 +1,2 @@
+
+Doğrulanmıs mavi rozet
